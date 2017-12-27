@@ -1,1 +1,1 @@
-# readme-edits
+A detailed oriented individual with more than 30 years of experience in manufacturing and finance industries. I have extensive experience in Software Testing and Quality Control/Assurance in Information Technology. Core expertise in Quality Assurance, In-house Deployments, Software Architecture Design & Development and Workflow Analysis. Possess excellent communication, analytical and problem solving skills. A team player, experienced in implementing projects using efficient project management processes & controls.
